@@ -2,7 +2,7 @@
 - 👀 I’m interested in NOTHING
 - 🌱 I’m currently learning EVERYTHING
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me hmdhanush912004@gmial.com / dhanushshshsh.instagram
+- 📫 How to reach me hmdhanush912004@gmial.com / Instagram : https://bit.ly/4aTXnbX
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am Bipolar (may be) 
 
