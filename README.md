@@ -2,10 +2,6 @@
 
  Hi I am Dhanush
 
-I'm a Developer focused on building high-performance applications and intelligent search systems.
--  Currently working on [Endee Insight](https://github.com/Dhanushiremath/endee_project)
--  Looking to collaborate on Open Source Search Systems
--  Currently learning GenAI / Vector Databases (Endee)
 
 # Connect with Me:
 
